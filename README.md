@@ -1,0 +1,2 @@
+# LazizbekLentay
+Super lentay
